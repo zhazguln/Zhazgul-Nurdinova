@@ -1,0 +1,2 @@
+# Zhazgul Nurdinova
+ Personal Brand
